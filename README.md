@@ -12,7 +12,4 @@ ONE PUNCH MAN
 MASCHLE
 ASSSASINATION CLASSROOM
 NARUTO
-
-
-
-
+That is so funny! :joy:
