@@ -1,7 +1,8 @@
  # My favorite Anime
- ~~Ghibli.~~
+ ~~HxH.~~
+ ~~dororo.~~
+ ~~.~~
  
-
 
 
 
