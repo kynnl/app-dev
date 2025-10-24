@@ -12,8 +12,8 @@
 6. [ ~~DANDADAN.~~]
 
  
-7. SPY X FAMILY  𓆝 𓆟 𓆞 𓆝 𓆟
-8. DEMON SLAYER KAIJU 8 𒅒𒈔𒅒𒇫𒄆
+7. SPY X FAMILY  𓆝 𓆟  𓆟
+8. DEMON SLAYER KAIJU 8 𒅒
 9. ONE PUNCH MAN ⚔︎
 10. MASCHLE >⩊<
 11. ASSSASINATION CLASSROOM ⛩️🌸🍥☯🍜
