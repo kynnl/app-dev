@@ -1,20 +1,20 @@
  # My favorite 𝓐𝓷𝓲𝓶𝓮  ⚚
-[ ~~HxH.~~]
+1. [ ~~HxH.~~]
 
- [~~dororo.~~]
+2. [~~dororo.~~]
  
-[ ~~SPRIGGAN.~~]
+3. [ ~~SPRIGGAN.~~]
 
-[ ~~SOLO LEVILING.~~]
+4. [ ~~SOLO LEVILING.~~]
 
-[~~BLACK CLOVER.~~]
+5. [~~BLACK CLOVER.~~]
 
-[ ~~DANDADAN.~~]
+6. [ ~~DANDADAN.~~]
 
  
-SPY X FAMILY  𓆝 𓆟 𓆞 𓆝 𓆟
-DEMON SLAYER KAIJU 8 𒅒𒈔𒅒𒇫𒄆
-ONE PUNCH MAN ⚔︎
-MASCHLE >⩊<
-ASSSASINATION CLASSROOM ⛩️🌸🍥☯🍜
-NARUTO🍥🍜🦊Naruto
+7. SPY X FAMILY  𓆝 𓆟 𓆞 𓆝 𓆟
+8. DEMON SLAYER KAIJU 8 𒅒𒈔𒅒𒇫𒄆
+9. ONE PUNCH MAN ⚔︎
+10. MASCHLE >⩊<
+11. ASSSASINATION CLASSROOM ⛩️🌸🍥☯🍜
+12. NARUTO🍥🍜🦊Naruto
