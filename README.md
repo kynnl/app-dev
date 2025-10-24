@@ -1,6 +1,7 @@
 # app-dev
  My first repository
-![Studio Ghibli Logo](https://upload.wikimedia.org/wikipedia/commons/7/76/Studio_Ghibli_wordmark.svg)
+ 
+![Studio Ghibli Logo](https://www.youtube.com/watch?v=12gEj_jRF-A&t=5s)
 
 
 
