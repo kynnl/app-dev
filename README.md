@@ -1,5 +1,6 @@
 # app-dev
  My first repository
-![My Ghibli Image](/images/ghibli_scene.png)
+![Ghibli Scene](https://upload.wikimedia.org/wikipedia/en/3/3c/Studio_Ghibli_logo.svg)
+
 
 
