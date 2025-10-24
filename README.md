@@ -1,5 +1,5 @@
  # My favorite 𝓐𝓷𝓲𝓶𝓮  ⚚
-[ ~~HxH.~~]
+1.[ ~~HxH.~~]
  [~~dororo.~~]
 [ ~~SPRIGGAN.~~]
 [ ~~SOLO LEVILING.~~]
